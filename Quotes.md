@@ -7,3 +7,4 @@
 - All our dreams can come true if we have the courage to pursue them.
 - If you do what you always did, you will get what you always got.
 - Success is walking from failure to failure with no loss of enthusiasm.
+- Successful entrepreneurs are givers and not takers of positive energy.
