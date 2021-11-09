@@ -9,3 +9,4 @@
 - Success is walking from failure to failure with no loss of enthusiasm.
 - Successful entrepreneurs are givers and not takers of positive energy.
 - Opportunities don't happen, you create them.
+- Success usually comes to those who are too busy looking for it.
